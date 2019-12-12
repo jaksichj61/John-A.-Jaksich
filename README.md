@@ -1,2 +1,2 @@
 # John-A.-Jaksich
-Freelancer science writer
+Freelance science writer
